@@ -8,3 +8,12 @@ STOP STALKING ME
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+-👯 I’m looking to collaborate with Air Jordan 
+
+-📫 How to reach me: Insta: Luvvv.ze10 
+
+-💵 Im Rich 
+
+-⚽ Professional Soccer player
+
+-
