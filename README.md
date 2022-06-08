@@ -16,4 +16,6 @@ STOP STALKING ME
 
 -⚽ Professional Soccer player
 
--
+- idk what i wanna learn in computer science never heard of it hope its fun thou 😆
+
+- learning computer science would be importnant becausae it would give me a high school credit 😁
